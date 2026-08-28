@@ -1,6 +1,8 @@
 # ÆLYSIUM Softworks - Press kit
 This is a collection of ÆLYSIUM's logos and graphics officially approved for press use.
 
+Images on this page may be used for publication with credit: "Source: ÆLYSIUM Softworks."
+
 ## Company logos
 
 ### Full logos (with Softworks script)
